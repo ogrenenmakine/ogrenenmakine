@@ -1,5 +1,5 @@
 ### Hi, I am Mehmet Can Yavuz, PhD.
 
-## :zap:	:zap:	Repo moved to [convergingmachine](https://github.com/convergingmachine/) :zap:	:zap:	
+## :zap:	:zap:	Repo moved to [convergedmachine](https://github.com/convergedmachine/) :zap:	:zap:	
 
-### [convergingmachine.com](https://convergingmachine.com/)
+### [convergedmachine.com](https://convergedmachine.com/)
